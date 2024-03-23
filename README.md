@@ -9,4 +9,3 @@ https://drive.google.com/file/d/1II22-ovI3UNJL1lwgQdPHtRCvqnxZY3d/view?usp=shari
 ![aa](https://user-images.githubusercontent.com/54935867/149628831-63ba9782-a90f-4401-8871-a0b346abe8fd.PNG)
 
 
-![424639515_861371979333375_5452389240702674516_n](https://github.com/wardaharshad/Cats-Vs-Dogs/assets/54935867/2440145c-ab97-43ad-91d4-ec35b0ce751e)
